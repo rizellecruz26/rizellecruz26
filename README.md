@@ -1,6 +1,6 @@
 - 👋 Hi, I’m elle
-- 👀 I’m interested in nothing
-- 🌱 I’m currently learning something
+- 👀 I’m interested in music
+- 🌱 I’m currently learning piano
 - 💞️ I’m looking to collaborate on nothing
 - 📫 How to reach me on Ig
 
